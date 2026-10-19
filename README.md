@@ -1,1 +1,0 @@
-# HOOPS-LAB-3D
